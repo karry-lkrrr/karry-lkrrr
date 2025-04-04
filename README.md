@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @karry-lkrrr
 - 👀 I’m interested in ride
 - 🌱 I’m currently learning the red hat girl story
-- 💞️ I’m looking to collaborate on a quilt girl
+- 💞️ I’m looking to ???
 - 📫 How to reach me for 1586310219@qq.com
 - 😄 Pronouns: good
 - ⚡ Fun fact: emmm
